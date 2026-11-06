@@ -1,0 +1,1 @@
+Aquí resgistraré mis análisis y operaciones para evaluar mi proceso.
